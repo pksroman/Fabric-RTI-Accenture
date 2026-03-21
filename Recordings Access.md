@@ -10,7 +10,7 @@
 
 **Accenture learners:** Please use the GO Link provided for access - [https://aka.avanade.com/FabCon26WSRecording](https://aka.avanade.com/FabCon26WSRecordinghttps://aka.avanade.com/FabCon26WSRecording)
 
-**Cohort 1 **- Trainer is **G R Deeba Lakshmi**
+**Cohort 1**- Trainer is **G R Deeba Lakshmi**
 
 **Cohort 2** - Trainer is **Prabhakar Kumar Singh**
 
